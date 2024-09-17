@@ -18,11 +18,13 @@
 # References (In order of appearence, sorted by section)
 also sorry that the formatting is bad :(
 
+## Intro
 1. https://www.si.com/fannation/sneakers/news/michael-jordan-nike-celebrate-38-years-together
 2. https://www.sportsbusinessjournal.com/Journal/Issues/2021/09/06/Portfolio/Book-excerpt.aspx
 3. https://www.youtube.com/watch?v=WQpdz_98Blc
 4. https://www.youtube.com/watch?v=Budtv1HCLpQ
 
+## You think Michael advertised in a pool?
 5. https://www.tiktok.com/@gardeningwithbmo/video/7245405341096135982?_t=8oanElt9g93&_r=1
 6. https://www.youtube.com/watch?v=QEzt_vH2Yag
 7. https://www.youtube.com/watch?v=bwog4FFsRwg
@@ -36,6 +38,7 @@ also sorry that the formatting is bad :(
 15. http://web.archive.org/web/20240521160333/https://www.sportbible.com/football/reactions-news-take-a-bow-nikes-winner-stays-on-advert-will-always-be-a-classic-20200505 **(og link died)**
 16. https://www.sezayaltinok.com/winner-stays
 
+## As Eaten on TV
 17. https://www.youtube.com/watch?v=LxYw55zkHL0
 18. "Twix candy" (https://skfb.ly/oXJoo) by Joseph5678913 is licensed under Creative Commons Attribution-NoDerivs (http://creativecommons.org/licenses/by-nd/4.0/). **Seen at 05:44**.
 19. https://www.youtube.com/watch?v=YgFjc8uQyo8
@@ -54,6 +57,7 @@ also sorry that the formatting is bad :(
 31. https://www.linkedin.com/posts/evita-chahine_pepsi-vending-machine-commercial-2001-activity-7147906752057954304-fOxf
 32. https://www.tiktok.com/@bestmarketingofficial/video/7226463025547595051?lang=en
 
+## Hold Y to Skip Ad
 33. https://www.youtube.com/watch?v=kOZ8bRAO7YQ
 34. https://www.gamespot.com/articles/first-modern-warfare-2-footage-airs-full-reveal-coming-may-24/1100-6209480/ **(video taken from the website)**
 35. https://forums.escapistmagazine.com/threads/first-modern-warfare-2-footage-debuts.19794/
@@ -68,6 +72,7 @@ also sorry that the formatting is bad :(
 44. https://www.express.co.uk/entertainment/gaming/929063/Nintendo-Direct-2018-March-8-start-time-Nintendo-Switch-games
 45. https://www.youtube.com/watch?v=w3Gt42kVgCw&pp=ygULc3NidSByZXZlYWw%3D
 
+## Ads, Present Day, and You(Tube)
 46. https://www.reddit.com/r/Damnthatsinteresting/comments/1dfzf38/when_coca_cola_announced_it_sold_4_times_more/
 47. https://www.youtube.com/watch?v=GXMl9wWsU2U
 48. https://www.amic.media/media/files/file_352_2142.pdf
@@ -84,6 +89,8 @@ also sorry that the formatting is bad :(
 59. https://www.youtube.com/watch?v=sV5MwVYQwS8
 60. https://www.youtube.com/watch?v=RtvSwfWDMto
 61. https://www.youtube.com/watch?v=VtvjbmoDx-I
+
+## Outro
 62. https://www.youtube.com/watch?v=jR7RYKPJBdo
 63. https://www.youtube.com/watch?v=LMM8WfSGh_w
 64. https://www.youtube.com/watch?v=G_b8S-pJVG8
