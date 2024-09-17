@@ -1,6 +1,6 @@
 # peace to
-@chichukin for proofwatching & giving feedback
-@edgymurhpy for feedback on ideas
+- **[@chichukin](https://www.youtube.com/@chichukin)** for proofwatching & giving feedback on ideas
+- **[@edgymurphy](https://www.youtube.com/@Edgy_Murphy)** for feedback on ideas
 
 # Music (In order of appearence)
 - A.D.H.D - Kendrick Lamar
