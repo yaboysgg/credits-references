@@ -1,3 +1,7 @@
+# peace to
+@chichukin for proofwatching & giving feedback
+@edgymurhpy for feedback on ideas
+
 # Music (In order of appearence)
 - A.D.H.D - Kendrick Lamar
 - Resurrection - Common
